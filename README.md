@@ -15,7 +15,7 @@ Since this repository is for my personal assignments, external contributions are
 For any queries or discussions, feel free to connect with me on:
 - GitHub: [TALHADevelops](https://github.com/TALHAdevelops)
 - LinkedIn: [Talha Sajjad](https://www.linkedin.com/in/talha-sajjad-577575316/)
-- Email: your.email@example.com
+- Email: talhasajjad952006@gmail.com
 
 ---
 
