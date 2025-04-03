@@ -16,6 +16,7 @@ For any queries or discussions, feel free to connect with me on:
 - GitHub: [TALHADevelops](https://github.com/TALHAdevelops)
 - LinkedIn: [Talha Sajjad](https://www.linkedin.com/in/talha-sajjad-577575316/)
 - Email: talhasajjad952006@gmail.com
+- Instagram: [Talha](https://www.instagram.com/tal_ha.o7/)
 
 ---
 
